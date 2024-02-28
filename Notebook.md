@@ -1,7 +1,7 @@
 # Online Notebook
 
 ## Dr. Lauren V. Ash
-### Postdoctoral associate at University of South Florida
+### Postdoctoral scholar at University of South Florida
 
 ------
 
